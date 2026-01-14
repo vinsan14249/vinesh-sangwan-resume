@@ -3,7 +3,7 @@
 
 📍 **India** |
 📧 **sangwan.vinesh@gmail.com** | 📞 **+91-9899176114**  
-🔗 **LinkedIn:** https://www.linkedin.com/in/vinesh-sangwan-3215474b/
+🔗 **LinkedIn:** https://www.linkedin.com/in/vinesh-sangwan-3215474b
 ---
 
 ## Leadership Summary
